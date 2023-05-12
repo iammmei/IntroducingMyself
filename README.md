@@ -51,7 +51,9 @@ I'm afraid that at some point it will become too hard and that I can no longer f
 ### I CAN'T WAIT TO 
 
 - Create amazing bonds with my teammates.
+
 ![awww](https://media.giphy.com/media/LYJLrM8VkBmyCKOd1O/giphy.gif)
+
 - Become the best and richest web developer ever.
 -  Challenge myself , set goals and achieve them.
 
