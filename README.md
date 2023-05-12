@@ -10,7 +10,7 @@
 ### TOP 3 SKILLS
 
 1. **KARAOKE**
- Nobody can't stop me from having a full performance once i arrive at the  karaoke, it's all or nothing. 
+ Nobody can't stop me from having a full performance once i arrive at the  karaoke, as if  it's a matter of life or death, i give it all.
 ![I AM THE BEST ](https://media.giphy.com/media/Tdqgr6bOhtLaM/giphy.gif)
 
 
