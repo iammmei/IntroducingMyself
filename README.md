@@ -63,9 +63,13 @@ I'm afraid that at some point it will become too hard and that I can no longer f
 
 *Alone you go faster together we go further*
 
-Everyones is unique, with different skills and interests and when people work together and put their uniqueness together , the result can only be mesmerising 
+Everyones is unique, with different skills and interests and when people work together and put their uniqueness together ,
+the result can only be mesmerising. 
+
 We learn a lot thanks to others or even helping those with more difficulties isn't that amazing?
+
 Your communications skills can only be improved while working with others.
+
 
 ![awww](https://media.giphy.com/media/m9eG1qVjvN56H0MXt8/giphy.gif)
 
