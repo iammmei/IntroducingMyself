@@ -1,11 +1,12 @@
 # IntroducingMyself
 
-### Safae Khanchouf, a Web Developer in the making 
+#### Safae Khanchouf, a Web Developer in the making 
 
 I'm just a girl with multiple passions, trying to figure out life and traveling whenever I have the time (and budget).
 
 
-#### TOP 3 SKILLS
+
+### TOP 3 SKILLS
 
 1. **KARAOKE**
  Nobody can't stop me from having a full performance once i arrive at the  karaoke, it's all or nothing. 
@@ -23,29 +24,39 @@ I'm just a girl with multiple passions, trying to figure out life and traveling 
 ![DELICIOUS KOREAN CHICKEN](https://media.giphy.com/media/JTydmVWP0vrD0dAQPI/giphy.gif)
 
 
-#### What i love the most
+
+
+### What i love the most
 
 - *The sea* : Nothing makes me more happy than being around the sea , it relaxes me physically, mentally and purifyes my soul. Even better when it's blue, clear and accompanied by the sun.
 - *Myself* : I am my own bff and the best company i can ever have.
 -  *Music* : I love music, i listen to all kind of musics (literally) , from the 30's (or even before)  to now and in  any languages.
 
-#### My goal as Developer @BeCode
+
+
+### My goal as Developer @BeCode
 
 Do the best i can everyday and don't give up even in difficult times.
 And become the best developer **ever**.
 
-#### My fears 
+
+
+### My fears 
 
 I'm afraid that at some point it will become too hard and that I can no longer follow.
 
-#### I CAN'T WAIT TO 
+
+
+### I CAN'T WAIT TO 
 
 - Create amazing bonds with my teammates.
 ![awww](https://media.giphy.com/media/LYJLrM8VkBmyCKOd1O/giphy.gif)
 - Become the best and richest web developer ever.
 -  Challenge myself , set goals and achieve them.
 
-#### What i value the most to work as a team
+
+
+### What i value the most to work as a team
 
 *Alone you go faster together we go further*
 
