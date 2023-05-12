@@ -38,7 +38,8 @@
 ### My goal as Developer @BeCode
 
 Do the best i can everyday and don't give up even in difficult times.
-And become the best developer **ever**.
+
+Become the best developer **ever**.
 
 
 
