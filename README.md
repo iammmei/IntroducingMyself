@@ -2,7 +2,8 @@
 
 #### Safae Khanchouf, a Web Developer in the making 
 
-*I'm just a girl with multiple passions, trying to figure out life and traveling whenever I have the time (and budget).*
+
+*Just a girl with multiple passions, trying to figure out life and traveling whenever I have the time (and budget).*
 
 
 
