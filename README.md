@@ -15,7 +15,8 @@ I'm just a girl with multiple passions, trying to figure out life and traveling 
  2. **EXTREME LUCKY UNLUCKINESS** 
    Bad luck is my friend but i embraced it because it's (almost) always a blessing in disguise.
    
-   ![ smiley triste ou pas ](https://giphy.com/clips/travisband-travis-fran-healy-why-does-it-always-rain-on-me-mQL0DXEFyENRXUxSv7)
+   ![on est la ](https://media.giphy.com/media/N51ev52cqXizcwvchI/giphy.gif)
+   
 3. **KOREAN STREET FOOD and FRIED CHICKEN**
  I really wanted to try korean chicken and street food  during the covid but every restaurant i ordered to wasn't meeting my expectations so i improved  my recipes for months and now i have the best recipe.
  
